@@ -1,4 +1,6 @@
 'Welcome, welcome to sebbyz aka my read me<!' 
+
+
 'i'll make this short for ya please wait, , , ,'
 ~    `    !   ~    ~  !   ~   1   ~   !   ~   !   ~  !   ~  !   
   ' '   i n   p0ny town these are some do's and doNts!
