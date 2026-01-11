@@ -1,6 +1,6 @@
 'Welcome, welcome to sebbyz aka my read me<!' 
 'i'll make this short for ya please wait, , , ,'
-
+~    `    !   ~    ~  !   ~   1   ~   !   ~   !   ~  !   ~  !   
   ' '   i n   p0ny town these are some do's and doNts!
 
 .  . ,  +dont: randomly sit next to me if at the moment my name doesn't appear to have 'c+H or int.' ,  ,  ,  
@@ -20,3 +20,9 @@
 birth day.: december, 6th, ,
 mutuals,: @germz ,  @subspacezero
 thiz iz the end of my read me.!
+
+
+
+1 - f 3 3 l  - s 0 - f u n n 7 - t h 3 s e - d 4 y z.
+_____________________________________________________
+()   0     -    0    ()
